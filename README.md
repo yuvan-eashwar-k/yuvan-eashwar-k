@@ -4,5 +4,4 @@
 - 🤔 I’m looking for help with Backend Development
 - 💬 Ask me about Anything
 - 📫 How to reach me: [Instagram](http://https://www.instagram.com/yuvan_eashwar/) [Facebook](https://www.facebook.com/Yuvan-Eashwar-111292167294975) [LinkedIn](https://https://www.facebook.com/Yuvan-Eashwar-111292167294975) [Twitter](https://https://twitter.com/YuvanEashwar)
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love fishing as a sport.
